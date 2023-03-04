@@ -1,4 +1,4 @@
 hello developers
 
 
-checkout my yt for detailed video - https://www.youtube.com/channel/UCK3AzBX7nCvqxXEJQKvMW4g/
+checkout my yt for detailed video - https://youtu.be/i7Aglp6M5g4
